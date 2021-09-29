@@ -47,8 +47,8 @@ Begin with your hand in a tight fist, making sure that your thumb is not tucked 
 
 2. Preparing 
 
-Keeping you fist by the waist; take your free hand, tighten it into a fist and extend your arm out in front of you, keeping the elbow straight.
+Keep your fist by the waist; now, take your free hand, tighten it into a fist and extend your arm out in front of you, keeping the elbow straight. You are now in ready position.
 
 3. Executing
 
-You are now in ready position. 
+Pull your extended fist back to your waist quickly. Simultaneously, extend your resting hand out quickly. It is almost like a lever; one hand extends while the other pulls back into starting position. 
