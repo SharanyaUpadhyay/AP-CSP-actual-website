@@ -35,7 +35,20 @@ Your Pages site will use the layout and styles from the Jekyll theme you have se
 ### Support or Contact
 
 Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+
+
+
+
 # The Basics of Taekwondo
 ## How to do a Middle-Section Punch
 1. Starting Position
-````Begin with your hand in a tight fist; 
+
+Begin with your hand in a tight fist, making sure that your thumb is not tucked inside the other fingers. Keep your fist resting on the side of your body, right above the hip, with the palm facing upwards
+
+2. Preparing 
+
+Keeping you fist by the waist; take your free hand, tighten it into a fist and extend your arm out in front of you, keeping the elbow straight.
+
+3. Executing
+
+You are now in ready position. 
