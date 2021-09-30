@@ -53,6 +53,10 @@ Keep your fist by the waist; now, take your free hand, tighten it into a fist an
 
 Pull your extended fist back to your waist quickly. Simultaneously, extend your punching hand out quickly. While extending your punching hand, make sure that you rotate your fist so that when your hand is fully extended, the palm is facing downwards. It is almost like a lever; one hand extends while the other pulls back into starting position. Here, check that your punching hand is right in front of your solar plexus (the soft area right under the middle bone of your ribs). 
 
+![image](https://user-images.githubusercontent.com/91563610/135512026-8c1e1f04-4e9b-4ad0-9d27-8c9b64122cbb.png)
+
+Click [here](https://www.youtube.com/watch?v=5A83BETPIkI) for a visual guide to what the middle-section punch should look like in action.
+
 ## How to do a Low-Section Block
 1. Starting Position
 
@@ -65,3 +69,9 @@ For this first block, we will be blocking with the right hand. To prepare, take 
 3. Exectuting
 
 The next two steps will occur simultaneously. Pull your left hand to your waist back to starting position quickly. Your right elbow will unbend quickly and you will stop when your fist is in front of your right thigh and a few inches away from it. 
+
+![image](https://user-images.githubusercontent.com/91563610/135512092-af418765-94b3-4f5c-b01c-3beb660cd71c.png)
+
+Click [here](https://www.youtube.com/watch?v=Kk1AyFGf3Lk) for a visual guide to what the low-section block should look like in action.
+
+
